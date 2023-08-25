@@ -4,4 +4,5 @@
 - 💞️ I'm looking for DIY collaboration and programming
 - 📫 How to reach me semyon.artem@gmail.com ...
 
-- 
+  /set sen b
+yy
